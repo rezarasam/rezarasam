@@ -1,4 +1,4 @@
-## H# 💫 About Me:
+ 💫 About Me:
 I'm looking for help with<br>I'm currently learning
 
 
